@@ -9,4 +9,8 @@ I am random,so expect some info dumping or stupid shii :3
 
 Sometimes my mood swings might kicked in,be aware brhhahala.
 
-(would add more in the future.) Anyways. Enjoy your day. <3
+I am pretty bad at explaining stuff. I might struggle with it alot. So pls b patient.. :( 
+
+(Would add more in the future.) 
+
+Anyways. Enjoy your day. <3
