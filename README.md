@@ -13,6 +13,10 @@ I am pretty bad at explaining stuff. I might struggle with it alot. So pls b pat
 
 I can match your enegry pretty quick,so don't be afraid 2 cuddle/talk 2 me ^^(especially when it comes 2 roblox,old media stuff)
 
+HOMESTUCKLINGS PLS INTT (brostrider heavy dni)
+
+ANYTHING INC3ST. NO. GET AWAY PLS.
+
 (Would add more in the future.) 
 
 Anyways. Enjoy your day. <3
