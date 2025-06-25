@@ -20,3 +20,8 @@ ANYTHING INC3ST. NO. GET AWAY PLS.
 (Would add more in the future.) 
 
 Anyways. Enjoy your day. <3
+
+
+![image](https://github.com/user-attachments/assets/bb72bdf2-161d-4a76-979e-e56e29ac575d)
+
+>i love MCR so muchchse ughh 
