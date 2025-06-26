@@ -11,7 +11,7 @@ Sometimes my mood swings might kicked in,be aware brhhahala.
 
 I am pretty bad at explaining stuff. I might struggle with it alot. So pls b patient.. :( 
 
-I can match your enegry pretty quick,so don't be afraid 2 cuddle/talk 2 me ^^(especially when it comes 2 roblox,old media stuff,BANDS!!.)
+I can match your energy pretty quick,so don't be afraid 2 cuddle/talk 2 me ^^(especially when it comes 2 roblox,old media stuff,BANDS!!.)
 
 HOMESTUCKLINGS PLS INTT (brostrider heavy dni)
 
