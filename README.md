@@ -27,3 +27,7 @@ Anyways. Enjoy your day. <3
 >i love MCR so muchchse ughh
 >
 >Band kids/Anyone fws bands r a BIG FAT INT UGHHS YALL SO COOLS
+>
+>More info at my strawpage ^_^ !!(Not forcing but follow me on straw n github for quick,silly drawingss :D)
+>
+>https://kynazz.straw.page
