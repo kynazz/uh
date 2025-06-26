@@ -28,6 +28,6 @@ Anyways. Enjoy your day. <3
 >
 >Band kids/Anyone fws bands r a BIG FAT INT UGHHS YALL SO COOLS
 >
->More info at my strawpage ^_^ !!(Not forcing but follow me on straw n github for quick,silly drawingss :D)
+>More info at my strawpage ^_^ !!(Not forcing but follow me on straw n github for quicker drawingss :D)(Drop your socials on ata ! so i can send you one !)
 >
 >https://kynazz.straw.page
