@@ -24,4 +24,6 @@ Anyways. Enjoy your day. <3
 
 ![image](https://github.com/user-attachments/assets/bb72bdf2-161d-4a76-979e-e56e29ac575d)
 
->i love MCR so muchchse ughh 
+>i love MCR so muchchse ughh
+>
+>Band kids/Anyone fws bands r a BIG FAT INT UGHHS YALL SO COOLS
