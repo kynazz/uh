@@ -31,3 +31,5 @@ Anyways. Enjoy your day. <3
 >More info at my strawpage ^_^ !!(Not forcing but follow me on straw n github so you can recieve earlier drawings of mine !)(Drop your socials on ata ! so i can send you one !)
 >
 > =>>[Str4wpage !](https://kynazz.straw.page)
+>
+> ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=Sillies&style=flat)
