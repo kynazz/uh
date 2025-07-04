@@ -1,5 +1,6 @@
 # haiiieloo!! waves at yuo (Tw:Yap,opinions) 
-i am VERY sensitive when it comes to copying skins topics,(pony town) for the record,i've never copy anyone's skin. I can just ask them for inspo,not copying it.(if you refuse 2 believe ? Sure buddy, srry but that's none of my business,i am here 2 enjoy the game not causing shitty dramas. +block.) If you want 2 take inspo or smth from my skin,just ask me. But hvy inspo makes me uncomf and i will likely b decline it.(Copying is a big no)
+
+I know my skins are not the best, imo my shadings are pretty humble. BUT i am VERY sensitive when it comes to copying skins topics,(pony town) for the record,i've never copy anyone's skin. I can just ask them for inspo,not copying it.(if you refuse 2 believe ? Sure buddy, srry but that's none of my business,i am here 2 enjoy the game not causing shitty dramas. +block.) If you want 2 take inspo or smth from my skin,just ask me. But hvy inspo makes me uncomf and i will likely b decline it.(Copying is a big no)
 
 But in other topics i am fine.  
 
