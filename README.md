@@ -41,7 +41,7 @@ Uhh add me on discord if you want
 > ![Hits](https://komarev.com/ghpvc/?username=kynazz&label=Hugs&style=flat)
 >
 ><img width="99" height="59" alt="image" src="https://github.com/user-attachments/assets/1a109f0c-101d-44bc-a168-f918fc41c9e1" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/232f853c-bd76-4761-9634-d03c7aeceffd" /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/059abfbf-8da3-4972-b46f-f99cf514a6b1" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2aecb773-61e0-447b-bd8e-6f29b9a713a8" />
-
-
+>
+>outdated.last upd8 is 8 months ago,i'll update this later fam 0_o
 
 
