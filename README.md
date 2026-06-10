@@ -14,6 +14,8 @@
 >
 >-Light inspo is alright,i also gift skins if i am feelin generous heh
 >
+>-I am mostly afk/making skins in pt,whisper to activate me from my slumber...zzz
+>
 > Live laugh love music !!
 >
 > Uhh jeck out my [strawpage](https://3piccatt.straw.page/) brodie looolllllll
