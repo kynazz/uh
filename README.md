@@ -20,7 +20,9 @@
 >
 > Uhh jeck out my [strawpage](https://3piccatt.straw.page/) brodie looolllllll
 >
-> ><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/232f853c-bd76-4761-9634-d03c7aeceffd" /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/059abfbf-8da3-4972-b46f-f99cf514a6b1" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2aecb773-61e0-447b-bd8e-6f29b9a713a8" />
+> ><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/232f853c-bd76-4761-9634-d03c7aeceffd" /><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/b51613f1-1a27-4254-8d0d-0ffa91daf9b4" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ae8801c5-1e59-4c7f-9705-666f005e9b90" />
+
+
 >
 >
 >
