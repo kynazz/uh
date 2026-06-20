@@ -8,6 +8,10 @@
 >
 >FNAF/DSAF fans that are actually sane hit me UPP (bonus if rebornicaAU stuff woah ??)
 >
+>Please dark/pro shippers don't int with me (i am fucking scared of every single one of you)
+>
+> >Yes people shouldn't be harrassed by what characters they ship but i just don't like you pro/darks </3
+>
 > -For ponytown-
 >
 >-Dont copy my skin,heavy inspo
