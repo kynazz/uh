@@ -1,8 +1,9 @@
 # Notes.(BYI)
 > Sup lass n lads, i mostly use git for codes n stuff and this is just for pony town,socials overall.
 >
->
 > Late respond bc i mostly zone out/ busy with school
+>
+>Also don't be so surprised if i randomly disconnect mid-convo we all love our shit wifi 👅
 >
 > Socially awkward,please please iwc 0_0;;
 >
