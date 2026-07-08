@@ -25,7 +25,7 @@
 >
 > Uhh jeck out my [strawpage](https://3piccatt.straw.page/) brodie looolllllll
 >
-> ><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/232f853c-bd76-4761-9634-d03c7aeceffd" /><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/b51613f1-1a27-4254-8d0d-0ffa91daf9b4" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ae8801c5-1e59-4c7f-9705-666f005e9b90" />
+> <img width="99" height="56" alt="tumblr_31d48bf9d33e62c7ba6484a0f7ca5462_0a136979_100" src="https://github.com/user-attachments/assets/2136e8a8-4f7b-4c92-8764-14dfe852f5ef"/><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/b51613f1-1a27-4254-8d0d-0ffa91daf9b4" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ae8801c5-1e59-4c7f-9705-666f005e9b90" />
 
 
 >
