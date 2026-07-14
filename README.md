@@ -21,7 +21,7 @@
 >
 >-I am mostly afk/making skins in pt,whisper to activate me from my slumber...zzz
 >
->-mostly alone,i love my personal space ^_^,idm if you are up for cuddles and chatting, i am all for it
+>-Mostly alone,i love my personal space ^_^,idm if you are up for cuddles and chatting, i am all for it
 >
 > Live laugh love music !!
 >
