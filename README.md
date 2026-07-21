@@ -21,7 +21,7 @@
 >
 >-I am mostly afk/making skins in pt,whisper to activate me from my slumber...zzz
 >
->-Usually alone,i love my personal space ^_^,idm if you are up for cuddles and chatting, i am all for it justt don't expect me to int first unless we are close or you are considered special to me(or you are cosplaying as my favorites) 
+>-Usually alone,i love my personal space ^_^,idm if you are up for cuddles and chatting, i am all for it justt don't expect me to always int first unless we are close or you are considered special to me(or you are cosplaying as my favorites) 
 >
 > Live laugh love music !!
 >
